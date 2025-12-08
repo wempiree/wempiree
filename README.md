@@ -1,23 +1,8 @@
-#        ͏       ͏       ͏       ͏ 𐔌 ᥩྀི.  ˔ ،  ꒱       ͏⏝ི ✿        
+## [STRAW.PAGE](https://cdol9hin.straw.page)      .     RENTRY WIP       .      MATCHING RENTRY WIP
 
-###        ͏       ͏       ͏       ͏ ◟ ͜𓏼˚̣̣̣◟ 𝜗୧ *my* ﹒ gang! 𓏵𓏵
+ASK 4 DISCORD  . ART COMMISSIONS NOT OPEN . LOOKING FOR FRIENDS
 
-
-![image alt](https://github.com/robloxedpizza/robloxedpizza/blob/98bfa27a8564f6cac6a9c42e2a7011242f47c35b/Untitled161_20251102101340.png)
-
-# 　　𓈒‿ ૮𐔌ᡘ ´  ˘  `๑꒱ა ᚐ  ݂۫ art — by me ! | ͜͝  ྀ໒꒱
+INFUSE SMP  .  LIFESTEAL SMP  .  MACE SMP . UNSTABLE SMP
 
 
-    
-   ໒𓉳ྀིྀ ͜ ◌ 𝄂 𓈒 ࣪ codren ✿᭪ wemi 𓈒݂݂݁ 𓏼 ꒱
-
- 𐔌 𓏫ᘚ𓏽ִ [rentry](https://rentry.co/wemperial) ♡︎ sp wip.. 𓏵ৎ
-     
-      view rentry in chrome!.. (⸝⸝ᵕᴗᵕ⸝⸝) 
-
-  𓈒ּུ ♡ ⑅ ݁𓈒݂݂  dc ; tntcrisp 𓂃༷ ུ ໒꒱ unstable universe! ꒷꒦ ͜͝ | †˖̣̣̣ ͜ ྀི་
-
-
-⠀៹⠀⠀ ࿁⠀  ⠀ 𓏼𓏼⠀⠀ ⠀  ִ ⠀⠀૮ ྀིᴗ͈ . ᴗ͈ ྀིაᶻ 𝘇  ⠀○
-
-       .   Reconsider Your Actions Now    . 
+       DOL9HIN    WEMMBU    MANEPEAR   WILLERHIDE   SOSOSHAUN
